@@ -1,1 +1,1 @@
-# thoriq.github.io
+# thoriqq.github.io
